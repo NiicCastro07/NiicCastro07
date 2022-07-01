@@ -1,0 +1,4 @@
+- 👋 Oi, eu sou a Nicole!
+- 🌱 eu  estou interessada em aprender novas linguagens
+- 💞️ tenho 15 anos
+- 📫 meu email para contato é nicole.castro.pereira@escola.pr.gov.br 
